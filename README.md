@@ -1,1 +1,1 @@
-Hugo Duenas
+Hugo Duenas Ingeniero en comunicaciones IPN
